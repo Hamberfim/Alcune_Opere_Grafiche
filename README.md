@@ -1,3 +1,3 @@
-# Alcuni Vecchi Lavori Grafici
-### Some of my old graphic works
+# Alcune opere grafiche 
+### Some graphic works
 
