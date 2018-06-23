@@ -1,3 +1,3 @@
-# Alcune opere grafiche 
+# Alcune Opere Grafiche 
 ### Some graphic works
 
